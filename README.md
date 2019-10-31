@@ -41,3 +41,4 @@ Marine Corps JROTC, Reading High School
 Head ASVAB Tutor 
 •	Created and led a tutoring program for 3 years to assist students in passing ASVAB test
 •	Developed detailed schedules and lesson plans to accommodate over 20 students 
+
