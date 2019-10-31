@@ -4,6 +4,7 @@ Assignment 4
 Sara Sanchez-Rivera
 
 Education 
+
 Lehigh University, Bethlehem, PA                                                           May 2023
 College of Business; Intended major: Accounting 
 
